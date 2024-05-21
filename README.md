@@ -1,1 +1,1 @@
-![Captura de tela 2024-05-21 140029](https://github.com/VickasBorges/card-profile/assets/138734276/abf511b9-86cb-4ff7-8bdd-8b57e246b001)
+![image](https://github.com/VickasBorges/cartao-perfil/assets/138734276/757335a2-0f49-4aa5-8d1d-f6cc4c6778e3)
